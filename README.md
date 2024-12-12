@@ -24,9 +24,9 @@ Tools & Technologies: Network Cabling, Routers, Switches, Firewalls
 Experience
 
 Customer Service/Retail Associate Compass Group, Ajax, Ontario (Feb 2024 – Present).              
-Managed inventory by organizing and stocking products to maintain optimal levels.                
-Collaborated effectively with team members to meet sales goals and improve store operations.     
-Trained and supported new employees, ensuring adherence to company standards and a smooth transition.
+-Managed inventory by organizing and stocking products to maintain optimal levels.                
+-Collaborated effectively with team members to meet sales goals and improve store operations.     
+-Trained and supported new employees, ensuring adherence to company standards and a smooth transition.
 
 Projects
 
